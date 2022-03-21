@@ -1,1 +1,2 @@
-# sinchan
+Don't copy my code...
+Visit git AS TERMUHACKER
